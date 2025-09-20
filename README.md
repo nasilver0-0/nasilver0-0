@@ -8,7 +8,7 @@ Born - March 29, 2004 (age 21 years), Daegu
 YeungNam University Department of Computer Science Engineering
 
 ### Profiles 💬
-E-mail : skfhddl0329@daum.net
+E-mail : migon0258@gmail.com
 
 
 
